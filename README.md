@@ -1,1 +1,1 @@
-# Jamesmoore.github.io My personal website
+# Jamesmoore.github.io 
